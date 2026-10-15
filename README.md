@@ -1,0 +1,2 @@
+# premium-pilot-hole-001-pilot-hole-drilling-core-bor
+Stop wasting time guessing pilot hole sizes or re-drilling misaligned bores. Your drilling projects deserve the precision and repeatability of a true craft lab.  The Pilot Hole Drilling &amp; Core Bore Craft Lab transforms your Notion workspace into a structured system for logging, planning, and perfecting every hole. No more scattered notes or forgott
